@@ -1,1 +1,1 @@
-halo rezha sedang belajar we dev odin
+halo rezha sedang belajar web dev odin
